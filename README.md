@@ -1,1 +1,1 @@
-My First readme
+mr kamau is a good person
